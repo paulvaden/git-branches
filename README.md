@@ -3,7 +3,7 @@
 These are a few of my favorite things:
 
 - Raindrops on roses
-- Whiskers on kittens
-- Bright copper kettles
+- Whiskers on puppes
+- Bright copper puppies
 - Warm woolen mittens
 - Free time
